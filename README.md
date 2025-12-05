@@ -4,4 +4,4 @@
 
 
 # Certifications
-A Set of all certifications I have achieved recently
+A Set of all certifications I have achieved recently. the other have been updated on my linkedIn Profile:  www.linkedin.com/in/navnitai
